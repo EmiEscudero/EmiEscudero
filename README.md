@@ -11,7 +11,7 @@
 
 - ⚡ Fun fact **I love running the day after a rainy day 🏃‍➡️**
 
--  *🏎️You're future hasn't been ridden yet, no ones has.Your future is whatever you make it. So, make it a good one.💛*
+-  *🏎️You're future hasn't been written yet, no ones has. Your future is whatever you make it. So, make it a good one.💛*
 
 
 ---
